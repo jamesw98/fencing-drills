@@ -16,7 +16,7 @@ There are two ways to do this drill, with hand signals and without
 **With Signals**   
 * Same basic idea as without.
 * For this drill, the leader can now raise their left, right, or both hands.
-* The leader will assign a piece of footwork to each signal, when they give a signal, the group will do that piece of footwork  
+* The leader will assign a piece of footwork to each signal, when they give a signal, the group will do that piece of footwork.
 
 Note: when rotating through leaders, try to make sure they aren't picking the same pieces of footwork every time (jump lunge and duck come to mind)  
   
