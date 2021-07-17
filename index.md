@@ -1,5 +1,5 @@
 # Fencing Drill Catalogue   
-This site is a collection of drills I think are good for any fencer. I've collected these over 14 years of fencing, but is by no means a comprensive list. These names are also just what I have learned to call them over the years, so you might know these drills by a different name.    
+This site is a collection of drills I think are good for any fencer. I've collected these over 14 years of fencing, but is by no means a compressive list. These names are also just what I have learned to call them over the years, so you might know these drills by a different name.    
 
 Also note, I am an epee coach and fencer, I have touched the other weapons, but have little experience. So these drills probably have a bit of an epee bias, but I'm sure some, especially the footwork drills, can work for other weapons, but might need some adaptation.     
 
